@@ -1,11 +1,12 @@
 ## tomorra
 pack Shukoh text
+Reserve MKP room
 pack computer
 leave home at 6am
 Shukoh lesson 8-9am
 buy breakfast
 Eat food at DiCE
-Reserve MKP room
+paste receipts in 2020 book
 )Update my sample site with Erik suggestions
 sleep and work on AB
 Dora 2pm - 3pm
