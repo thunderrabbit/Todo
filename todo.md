@@ -1,4 +1,16 @@
-### Tuesday 11 February 2020 JST
+## tomorra
+pack Shukoh text
+pack computer
+leave home at 6am
+Shukoh lesson 8-9am
+buy breakfast
+Eat food at DiCE
+Reserve MKP room
+)Update my sample site with Erik suggestions
+sleep and work on AB
+Dora 2pm - 3pm
+JB 3:30pm - 9pm
+##### Tuesday 11 February 2020 JST
 remember this list
 cuddle with Babychan (national holiday)
 take out trash
@@ -19,11 +31,8 @@ watch Magic for Humans
 MT3 livestream 2
 get el Lifty Lever on its pin
 get Caret Splitter Rudder nearly in its slot
-
+Squarehead grab Pinky's Decorative Wall
 meditate
-Update my sample site with Erik suggestions
-
-
 Go see Truly
 MKP circle
 ##### Monday 10 February 2020 JST
