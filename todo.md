@@ -12,6 +12,13 @@ send fixed JB PDF to Eriko
 Email Fred https://github.com/thunderrabbit/PDF-getter/issues/1
 print King review protocol
 MT3 livestream
+make el lifty lever guider
+glue shoes on Reversible Guy
+watch Southpark
+watch Magic for Humans
+MT3 livestream 2
+get el Lifty Lever on its pin
+get Caret Splitter Rudder nearly in its slot
 
 meditate
 Update my sample site with Erik suggestions
