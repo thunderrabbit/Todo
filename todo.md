@@ -1,4 +1,13 @@
 ## tomorra
+print BrainPad homework
+bring red pen
+bring Akiko's Gummy Race
+go to Kawasaki 11:30 - 1pm
+lunch with Hiro 1-2pm
+go teach at Toshiba 2:30 - 4:30
+mark corrections on BrainPad homework page
+go listen to Eriko teach at BrainPad (2/2 Eriko teaching) (10/12 overall)
+
 ) Buy receipt book
 
 ##### Wednesday 12 February 2020 JST
