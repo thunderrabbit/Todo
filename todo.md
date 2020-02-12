@@ -1,4 +1,5 @@
 ## tomorra
+) Buy receipt book
 
 ##### Wednesday 12 February 2020 JST
 pack Shukoh text
@@ -16,11 +17,9 @@ ask for support to reboot Wanbus (urbit and minecraft server)
 Post YAM 2 to FB
 paste receipts in 2020 book
 write past event dates in todo.md
-
-
-Buy receipt book
 Dora 2pm - 3pm
 JB 3:30pm - 9pm
+
 put Post Bank card away
 ##### Tuesday 11 February 2020 JST
 remember this list
