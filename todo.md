@@ -1,15 +1,17 @@
-## tomorra
+##### Thursday 13 February 2020 JST
+Adam Gilad first 1-on-1 7am - 8am
 print BrainPad homework
 bring red pen
 bring Akiko's Gummy Race
+Buy red A4 notebooks for JB
+) Buy receipt book
 go to Kawasaki 11:30 - 1pm
 lunch with Hiro 1-2pm
 go teach at Toshiba 2:30 - 4:30
 mark corrections on BrainPad homework page
 go listen to Eriko teach at BrainPad (2/2 Eriko teaching) (10/12 overall)
-
-) Buy receipt book
-
+Meet Akiko
+Give Gummy Race to Akiko
 ##### Wednesday 12 February 2020 JST
 pack Shukoh text
 Reserve MKP room
@@ -28,7 +30,7 @@ paste receipts in 2020 book
 write past event dates in todo.md
 Dora 2pm - 3pm
 JB 3:30pm - 9pm
-
+Log 1 hour AB fixing NORMAL errors, esp constants
 put Post Bank card away
 ##### Tuesday 11 February 2020 JST
 remember this list
