@@ -48,4 +48,24 @@ work on AB; finished SEVERITY_CRITICAL errors on ABB
 watch Indiana Jones and Temple of Doom #movie with Lin
 talk to group about Monday circle vs Bold Men circle
 talk to Erik about website
+##### Saturday 8 February 2020 JST
+Your Art Matters #1
+##### Friday 7 February 2020 JST
+hear Adam's Brass Balls Tender Heart presentation
+PB with Ayse
+##### Saturday 1 February 2020 JST
+barefoot walkshop and foot bath with Anuj
+Werewolf event in Japanese
+##### Saturday 25 January 2020 JST
+English coffee workshop with Yuna
+##### Monday 20 January 2020 JST
+Meet Joanna Arai
+##### Saturday 18 January 2020 JST
+Meet Lughn with Lin talk about eye gazing
+##### Monday 13 January 2020 JST
+Practice leading tour to Japanese Folk House Museum
+##### Saturday 11 January 2020 JST
+barefoot walkshop
+talk to Shinobu
+decide to do Your Art Matters
 
