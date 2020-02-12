@@ -1,16 +1,27 @@
 ## tomorra
+
+##### Wednesday 12 February 2020 JST
 pack Shukoh text
 Reserve MKP room
 pack computer
 leave home at 6am
+Update my sample site with Erik suggestions
 Shukoh lesson 8-9am
 buy breakfast
 Eat food at DiCE
-paste receipts in 2020 book
-)Update my sample site with Erik suggestions
+[-] Syncthing on wanb.us
+[-] Synch Todo to phone
 sleep and work on AB
+ask for support to reboot Wanbus (urbit and minecraft server)
+Post YAM 2 to FB
+paste receipts in 2020 book
+write past event dates in todo.md
+
+
+Buy receipt book
 Dora 2pm - 3pm
 JB 3:30pm - 9pm
+put Post Bank card away
 ##### Tuesday 11 February 2020 JST
 remember this list
 cuddle with Babychan (national holiday)
