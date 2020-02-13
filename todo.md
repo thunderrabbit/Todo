@@ -1,17 +1,30 @@
+##### Friday 14 February 2020 JST
+meditation
+Do first step or write to Adam G re Bold Life Mastery
+Josey Japanese lesson 10am
+Soness speech prep  11am
+Manami Japanese lesson 13:30pm
+Buy chocolate for Lin
+Buy red A4 notebooks for JB
+) Buy receipt book for eye gazing
+Post Barefoot thing in street-academy.com
 ##### Thursday 13 February 2020 JST
+meditation
 Adam Gilad first 1-on-1 7am - 8am
 print BrainPad homework
 bring red pen
 bring Akiko's Gummy Race
-Buy red A4 notebooks for JB
-) Buy receipt book
+scan 30 A4
+check in + 2nd round on MKP CyberKnights
 go to Kawasaki 11:30 - 1pm
+mark corrections on BrainPad homework page
 lunch with Hiro 1-2pm
 go teach at Toshiba 2:30 - 4:30
-mark corrections on BrainPad homework page
 go listen to Eriko teach at BrainPad (2/2 Eriko teaching) (10/12 overall)
-Meet Akiko
+Meet Akiko for language exchange
 Give Gummy Race to Akiko
+go home
+gargle
 ##### Wednesday 12 February 2020 JST
 pack Shukoh text
 Reserve MKP room
@@ -63,7 +76,7 @@ eat breakfast with Lin
 Japanese class Monday
 eat lunch at home
 Japanese class Manami
-https://news.ycombinator.com/item?id=22276184
+Make this list https://news.ycombinator.com/item?id=22276184
 twice monthly talk with Robert Golden
 work on AB; finished SEVERITY_CRITICAL errors on ABB
 watch Indiana Jones and Temple of Doom #movie with Lin
@@ -89,4 +102,3 @@ Practice leading tour to Japanese Folk House Museum
 barefoot walkshop
 talk to Shinobu
 decide to do Your Art Matters
-
