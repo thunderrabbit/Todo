@@ -1,20 +1,71 @@
+###
+meditation
+Post Barefoot thing in street-academy.com
+print speech for 21 February WEI seminar
+Yuna lesson
+pack speech
+pack wooden board
+pack computer
+pack Bold Life worksheet
+write a few pages of Bold Life worksheet
+write first exercise of Bold Life worksheet
+mark up speech edits
+write second exercise of Bold Life worksheet
+Go to dog farm with Lin (all day)
+write third exercise of Bold Life worksheet
+Buy chocolate for Lin
+Buy red A4 notebooks for JB
+Buy receipt book for eye gazing
 ##### Friday 14 February 2020 JST
 meditation
 Do first step or write to Adam G re Bold Life Mastery
 Josey Japanese lesson 10am
 Soness speech prep  11am
+Watch Southpark * 1
 Manami Japanese lesson 13:30pm
-Buy chocolate for Lin
-Buy red A4 notebooks for JB
-) Buy receipt book for eye gazing
-Post Barefoot thing in street-academy.com
+Watch Southpark * 2
+Sleep too dang long  https://www.robnugen.com/journal/2020/02/14/lazier-day-than-expected/
+Post scans of 30 A4s
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_01.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_02.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_03.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_04.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_05.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_06.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_07.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_08.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_09.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_10.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_11.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_12.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_13.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_14.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_15.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_16.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_17.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_18.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_19.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_20.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_21.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_22.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_23.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_24.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_25.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_26.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_27.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_28.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_29.jpg
+https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_30.jpg
+chat with Thanuja a bit
+(Start to) Post Barefoot thing in street-academy.com
+Eat light dinner and chocolate with Lin happy Valentine's Day
 ##### Thursday 13 February 2020 JST
 meditation
 Adam Gilad first 1-on-1 7am - 8am
 print BrainPad homework
 bring red pen
 bring Akiko's Gummy Race
-scan 30 A4
+scan 30 A4 (see links on 14 Feb)
 check in + 2nd round on MKP CyberKnights
 go to Kawasaki 11:30 - 1pm
 mark corrections on BrainPad homework page
@@ -24,7 +75,6 @@ go listen to Eriko teach at BrainPad (2/2 Eriko teaching) (10/12 overall)
 Meet Akiko for language exchange
 Give Gummy Race to Akiko
 go home
-gargle
 ##### Wednesday 12 February 2020 JST
 pack Shukoh text
 Reserve MKP room
