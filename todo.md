@@ -1,21 +1,39 @@
-###
-meditation
-Post Barefoot thing in street-academy.com
+####
+Get new bank book
+Become the hero you've been waiting for
+
+
+####
+SOGO
+Go to Shinjuku Park
+Go to foot bath place
+Buy chocolate for Lin
+Buy red A4 notebooks for JB
+Buy receipt book for eye gazing
+Post barefoot event on Street Academy
+##### Saturday 15 February 2020 JST
 print speech for 21 February WEI seminar
 Yuna lesson
+meditation
 pack speech
 pack wooden board
 pack computer
 pack Bold Life worksheet
-write a few pages of Bold Life worksheet
-write first exercise of Bold Life worksheet
 mark up speech edits
-write second exercise of Bold Life worksheet
 Go to dog farm with Lin (all day)
-write third exercise of Bold Life worksheet
-Buy chocolate for Lin
-Buy red A4 notebooks for JB
-Buy receipt book for eye gazing
+write a few pages of Bold Life worksheet
+write on Bold FB page
+write Barefoot thing in street-academy.com
+＜What is walking meditation?＞
+Walking meditation is a simple way to increase awareness.
+Connect with yourself.  Connect with nature.
+Anyone can do it, so let's enjoy walking.
+
+＜What to Expect＞
+* We will find a nice place to relax and connect with nature.
+* I will guide us in meditation, including walking meditation.
+* Feel free to be barefoot; whatever makes you comfortable.
+* We will go to a foot bath cafe after the park. http://donyoku.dosl2018.net/237 (approx 1000 yen)
 ##### Friday 14 February 2020 JST
 meditation
 Do first step or write to Adam G re Bold Life Mastery
@@ -57,8 +75,12 @@ https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_b
 https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_29.jpg
 https://b.robnugen.com/art/drawing/2020/ink_baste/front/feb_13/2020_feb_13_ink_baste_30.jpg
 chat with Thanuja a bit
+Make sure Sanae can come to eye gazig workshop on 23 Feb https://b.robnugen.com/journal/2020/2020_02_14_make_sure_sanae_can_join.png
 (Start to) Post Barefoot thing in street-academy.com
 Eat light dinner and chocolate with Lin happy Valentine's Day
+write first exercise of Bold Life worksheet
+write second exercise of Bold Life worksheet
+write third exercise of Bold Life worksheet
 ##### Thursday 13 February 2020 JST
 meditation
 Adam Gilad first 1-on-1 7am - 8am
