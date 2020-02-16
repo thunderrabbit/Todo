@@ -1,6 +1,9 @@
 ####
 Get new bank book
 Become the hero you've been waiting for
+Buy chocolate for Lin
+Buy red A4 notebooks for JB
+Buy receipt book for eye gazing
 Go to Shinjuku Park
 Go to foot bath place
 
@@ -9,9 +12,8 @@ Go to foot bath place
 SOGO -cancelled due to rain-
 Go to Shinjuku Park -cancelled due to SOGO cancelled-
 Go to foot bath place -cancelled due to cancellations-
-Buy chocolate for Lin
-Buy red A4 notebooks for JB
-Buy receipt book for eye gazing
+Work on AB + phan/phan
+
 Post barefoot event on Street Academy
 ＜What is walking meditation?＞
 Walking meditation is a simple way to increase awareness.
