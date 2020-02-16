@@ -8,6 +8,10 @@ Go to Shinjuku Park
 Go to foot bath place
 
 
+The Shadow Work with Rob was surprisingly powerful for me. I was able to work on an incident buried deep in my past in living emotional colour and Rob's gentle guidance allowed it to percolate (big time).
+Highly recommended.
+- Will (Shraddhan) Ewing
+
 ##### Sunday 16 February 2020 JST
 SOGO -cancelled due to rain-
 Go to Shinjuku Park -cancelled due to SOGO cancelled-
