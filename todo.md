@@ -1,29 +1,18 @@
 ####
 Get new bank book
 Become the hero you've been waiting for
-
-
-####
-SOGO
 Go to Shinjuku Park
 Go to foot bath place
+
+
+##### Sunday 16 February 2020 JST
+SOGO -cancelled due to rain-
+Go to Shinjuku Park -cancelled due to SOGO cancelled-
+Go to foot bath place -cancelled due to cancellations-
 Buy chocolate for Lin
 Buy red A4 notebooks for JB
 Buy receipt book for eye gazing
 Post barefoot event on Street Academy
-##### Saturday 15 February 2020 JST
-print speech for 21 February WEI seminar
-Yuna lesson
-meditation
-pack speech
-pack wooden board
-pack computer
-pack Bold Life worksheet
-mark up speech edits
-Go to dog farm with Lin (all day)
-write a few pages of Bold Life worksheet
-write on Bold FB page
-write Barefoot thing in street-academy.com
 ＜What is walking meditation?＞
 Walking meditation is a simple way to increase awareness.
 Connect with yourself.  Connect with nature.
@@ -34,6 +23,23 @@ Anyone can do it, so let's enjoy walking.
 * I will guide us in meditation, including walking meditation.
 * Feel free to be barefoot; whatever makes you comfortable.
 * We will go to a foot bath cafe after the park. http://donyoku.dosl2018.net/237 (approx 1000 yen)
+＜Shinjuku Gyoen＞
+Covering 144 acres, Shinjuku Gyoen blends three distinct styles, Formal Garden, Landscape Garden, and Japanese Traditional Garden.
+Shinjuku Gyoen https://www.env.go.jp/garden/shinjukugyoen/english/
+
+##### Saturday 15 February 2020 JST
+print speech for 21 February WEI seminar
+Yuna lesson
+meditation
+pack speech
+pack wooden board
+pack computer
+pack Bold Life worksheet
+mark up speech edits
+Go to dog farm with Lin (5 hours inc driving)
+write a few pages of Bold Life worksheet
+write on Bold FB page
+write Barefoot thing in street-academy.com
 ##### Friday 14 February 2020 JST
 meditation
 Do first step or write to Adam G re Bold Life Mastery
