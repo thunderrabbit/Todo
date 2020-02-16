@@ -17,6 +17,11 @@ SOGO -cancelled due to rain-
 Go to Shinjuku Park -cancelled due to SOGO cancelled-
 Go to foot bath place -cancelled due to cancellations-
 Work on AB + phan/phan
+watch 3 episodes of Southpark
+eat with Lin
+Work on AB + phan/phan
+talk to Deneys
+chat with Thanuja
 
 Post barefoot event on Street Academy
 ＜What is walking meditation?＞
