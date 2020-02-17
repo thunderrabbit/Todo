@@ -1,3 +1,41 @@
+##### Tuesday 18 February 2020 JST
+meditation
+MT3
+write MT3 meta data in Youtube or on marbletrack3.com
+Soness online prep for Friday speech
+Post possible dates for ShadowWork with men for Doodle
+Invite Sach, Hiro, to ShadowWork
+
+Post barefoot event on Street Academy
+
+＜What is walking meditation?＞
+Walking meditation is a simple way to increase awareness.
+Connect with yourself.  Connect with nature.
+Anyone can do it, so let's enjoy walking.
+
+＜What to Expect＞
+* We will find a nice place to relax and connect with nature.
+* I will guide us in meditation, including walking meditation.
+* Feel free to be barefoot; whatever makes you comfortable.
+* We will go to a foot bath cafe after the park. http://donyoku.dosl2018.net/237 (approx 1000 yen)
+
+＜Shinjuku Gyoen＞
+Covering 144 acres, Shinjuku Gyoen blends three distinct styles, Formal Garden, Landscape Garden, and Japanese Traditional Garden.
+Shinjuku Gyoen https://www.env.go.jp/garden/shinjukugyoen/english/
+
+＜Your guide＞
+Rob Nugen has been walking barefoot a total of 17 years
+As seen on Japanese TV
+Not just barefoot.  Rob also leads peer counseling circles.
+
+Do something Bold for BLB
+MKP Japan
+Invite a man to king in March
+Become the hero you've been waiting for
+Buy chocolate for Lin
+Buy red A4 notebooks for JB
+Buy receipt book for eye gazing
+
 ##### Monday 17 February 2020 JST
 Livestream MT3
 Study Japanese at Monday group
