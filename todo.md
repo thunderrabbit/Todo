@@ -1,17 +1,17 @@
-####
+##### Monday 17 February 2020 JST
+Livestream MT3
+Study Japanese at Monday group
+Study Japanese with Manami
 Get new bank book
-Become the hero you've been waiting for
-Buy chocolate for Lin
-Buy red A4 notebooks for JB
-Buy receipt book for eye gazing
-Go to Shinjuku Park
+Go to Shinjuku Park (closed Mondays)
 Go to foot bath place
-
-
-The Shadow Work with Rob was surprisingly powerful for me. I was able to work on an incident buried deep in my past in living emotional colour and Rob's gentle guidance allowed it to percolate (big time).
-Highly recommended.
-- Will (Shraddhan) Ewing
-
+Make reservation at foot bath place for March 7th (4 people)
+Buy art supplies (tracing paper and frame)
+Go to no lights no lycra
+write journal entries
+Schedule first possible Japanese Folk House walk on AirBnB (end of March)
+Write ShadowWork practice invitation
+Ask Mark and Deneys for feedback on ShadowWork invite
 ##### Sunday 16 February 2020 JST
 SOGO -cancelled due to rain-
 Go to Shinjuku Park -cancelled due to SOGO cancelled-
@@ -22,22 +22,7 @@ eat with Lin
 Work on AB + phan/phan
 talk to Deneys
 chat with Thanuja
-
-Post barefoot event on Street Academy
-＜What is walking meditation?＞
-Walking meditation is a simple way to increase awareness.
-Connect with yourself.  Connect with nature.
-Anyone can do it, so let's enjoy walking.
-
-＜What to Expect＞
-* We will find a nice place to relax and connect with nature.
-* I will guide us in meditation, including walking meditation.
-* Feel free to be barefoot; whatever makes you comfortable.
-* We will go to a foot bath cafe after the park. http://donyoku.dosl2018.net/237 (approx 1000 yen)
-＜Shinjuku Gyoen＞
-Covering 144 acres, Shinjuku Gyoen blends three distinct styles, Formal Garden, Landscape Garden, and Japanese Traditional Garden.
-Shinjuku Gyoen https://www.env.go.jp/garden/shinjukugyoen/english/
-
+Guide Lin to inner child healing (Freedom)
 ##### Saturday 15 February 2020 JST
 print speech for 21 February WEI seminar
 Yuna lesson
