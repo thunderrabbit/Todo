@@ -9,7 +9,7 @@ Make reservation at foot bath place for March 7th (4 people)
 Buy art supplies (tracing paper and frame)
 Go to no lights no lycra
 write journal entries
-Schedule first possible Japanese Folk House walk on AirBnB (end of March)
+Schedule first and second Japanese Folk House tour on AirBnB (金 13, 20 March)
 Write ShadowWork practice invitation
 Ask Mark and Deneys for feedback on ShadowWork invite
 ##### Sunday 16 February 2020 JST
