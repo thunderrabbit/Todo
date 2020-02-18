@@ -26,21 +26,15 @@ Shinjuku Gyoen https://www.env.go.jp/garden/shinjukugyoen/english/
 Rob Nugen has been walking barefoot a total of 17 years
 As seen on Japanese TV https://www.youtube.com/watch?v=Vvs3sKYYh5k
 Rob teaches emotional clarity.
-
+Soness online prep for Friday speech
 MT3
 write MT3 meta data in Youtube or on marbletrack3.com
-Soness online prep for Friday speech
+Do something Bold for BLB
 Post possible dates for ShadowWork with men for Doodle
 Invite Sach, Hiro, to ShadowWork
 
-Do something Bold for BLB
 MKP Japan
 Invite a man to king in March
-Become the hero you've been waiting for
-Buy chocolate for Lin
-Buy red A4 notebooks for JB
-Buy receipt book for eye gazing
-
 ##### Monday 17 February 2020 JST
 Livestream MT3
 Study Japanese at Monday group
