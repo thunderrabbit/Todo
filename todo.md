@@ -1,32 +1,37 @@
 ##### Tuesday 18 February 2020 JST
 meditation
-MT3
-write MT3 meta data in Youtube or on marbletrack3.com
-Soness online prep for Friday speech
-Post possible dates for ShadowWork with men for Doodle
-Invite Sach, Hiro, to ShadowWork
-
-Post barefoot event on Street Academy
+Post barefoot event on Street Academy  https://www.street-academy.com/myclass/77169
+裸足で新宿を歩こう！
+都会を裸足で歩いてみると、いろいろな発見があります。一緒に見て、感じて、楽しみましょう。散歩が主体なので、英語は中学生レベルでも大丈夫です！
 
 ＜What is walking meditation?＞
-Walking meditation is a simple way to increase awareness.
-Connect with yourself.  Connect with nature.
-Anyone can do it, so let's enjoy walking.
+Walking meditation is a simple way to improve awareness.
+
+Connect with yourself. Connect with nature.
+
+Anyone can do it. Let's enjoy walking slowly.
 
 ＜What to Expect＞
 * We will find a nice place to relax and connect with nature.
 * I will guide us in meditation, including walking meditation.
 * Feel free to be barefoot; whatever makes you comfortable.
-* We will go to a foot bath cafe after the park. http://donyoku.dosl2018.net/237 (approx 1000 yen)
+* We will go to a foot bath cafe after the park.
+http://donyoku.dosl2018.net/237 (790 yen + drink)
 
 ＜Shinjuku Gyoen＞
-Covering 144 acres, Shinjuku Gyoen blends three distinct styles, Formal Garden, Landscape Garden, and Japanese Traditional Garden.
+Covering 144 acres, Shinjuku Gyoen blends three distinct styles, Formal Garden, Landscape Garden, and Japanese Traditional Garden. (ticket included)
 Shinjuku Gyoen https://www.env.go.jp/garden/shinjukugyoen/english/
 
 ＜Your guide＞
 Rob Nugen has been walking barefoot a total of 17 years
-As seen on Japanese TV
-Not just barefoot.  Rob also leads peer counseling circles.
+As seen on Japanese TV https://www.youtube.com/watch?v=Vvs3sKYYh5k
+Rob teaches emotional clarity.
+
+MT3
+write MT3 meta data in Youtube or on marbletrack3.com
+Soness online prep for Friday speech
+Post possible dates for ShadowWork with men for Doodle
+Invite Sach, Hiro, to ShadowWork
 
 Do something Bold for BLB
 MKP Japan
