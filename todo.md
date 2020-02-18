@@ -1,3 +1,15 @@
+##### Wednesday 19 February 2020 JST
+wake up early
+Shukoh
+Buy red A4 notebooks for JB
+Buy receipt book for eye gazing
+Buy phone holder for camera tripod
+Go to net cafe to sleep
+work on AB, create tests for units prev/next
+JB School
+Become the hero you've been waiting for
+Buy chocolate for Lin
+
 ##### Tuesday 18 February 2020 JST
 meditation
 Post barefoot event on Street Academy  https://www.street-academy.com/myclass/77169
