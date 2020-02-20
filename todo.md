@@ -1,3 +1,9 @@
+##### Thursday 20 February 2020 JST
+Practice speech
+go talk about TJ Bike flat tire
+go to Toshiba
+go to BP
+practice speech
 ##### Wednesday 19 February 2020 JST
 wake up early
 Shukoh
@@ -10,8 +16,10 @@ JB School
 Practice presentation
 Become the hero you've been waiting for
 Buy chocolate for Lin
+Add questions to presentation
 How many were told not to cry?
 How did that make you feel?
+Add MT3 images to todo below
 
 ##### Tuesday 18 February 2020 JST
 meditation
@@ -44,6 +52,7 @@ Rob teaches emotional clarity.
 Soness online prep for Friday speech
 MT3
 write MT3 meta data in Youtube or on marbletrack3.com
+
 Do something Bold for BLB
 Post possible dates for ShadowWork with men for Doodle
 Invite Sach, Hiro, to ShadowWork
