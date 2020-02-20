@@ -7,8 +7,11 @@ Buy phone holder for camera tripod
 Go to net cafe to sleep
 work on AB, create tests for units prev/next
 JB School
+Practice presentation
 Become the hero you've been waiting for
 Buy chocolate for Lin
+How many were told not to cry?
+How did that make you feel?
 
 ##### Tuesday 18 February 2020 JST
 meditation
