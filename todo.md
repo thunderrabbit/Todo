@@ -1,3 +1,29 @@
+##### Sunday 23 February 2020 JST
+Cancel Tsutaya contract
+##### Saturday 22 February 2020 JST
+Yuna lesson (past life memories)
+Mohamed session on LINE
+Receive testimonial from Mohamed
+    i consider rob as my brother. It took me sometime to fully trust him
+    not gonna lie. the camping trip was when i realized that i could trust
+    this man with my life. Talking to him about issues is difficult in a
+    sense that it makes me see parts in myself that i dont necessarily
+    want to see. I like that I can talk to him about everything. He doesnt
+    seem judgemental at all and when he's judging, he expresses it which i
+    like. I feel he is really transparent and is "out there". like hey
+    world this is me with all of me
+Nap
+smooch Lin
+Work on AB
+Dinner and movie (Kill Bill on DVD)
+
+##### Friday 21 February 2020 JST
+Practice speech alone
+Practice speech with Soness
+Practice speech alone
+Go do speech
+Meet cool peeps
+Eat dinner with Freya and two others
 ##### Thursday 20 February 2020 JST
 Practice speech
 go talk about TJ Bike flat tire
