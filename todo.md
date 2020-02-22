@@ -1,5 +1,9 @@
 ##### Sunday 23 February 2020 JST
 Cancel Tsutaya contract
+print planned language for eye gazing
+Go get TJ Bike
+Go meet Yuna
+Do eye gazing workshop
 ##### Saturday 22 February 2020 JST
 Yuna lesson (past life memories)
 Mohamed session on LINE
