@@ -1,9 +1,19 @@
 ##### Sunday 23 February 2020 JST
-Cancel Tsutaya contract
 print planned language for eye gazing
-Go get TJ Bike
 Go meet Yuna
 Do eye gazing workshop
+eye gazing workshop monies:
+
+    14人 x 3500 + 49,000
+    location     - 14700
+    interpreter  - 17500
+    driver       -  8000
+    dinner 3人   -  7546
+    -------------------
+    profit         1254
+Dinner with Lin and Yuna at Royal Host
+drive home with Lin
+Cancel Tsutaya contract
 ##### Saturday 22 February 2020 JST
 Yuna lesson (past life memories)
 Mohamed session on LINE
