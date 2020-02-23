@@ -1,3 +1,10 @@
+##### Monday 24 February 2020 JST
+Happy Birthday Wende
+Happy Birthday Christine
+Work on AB
+Go get TJ Bike
+Go to Coffee workshop
+Work on AB
 ##### Sunday 23 February 2020 JST
 print planned language for eye gazing
 Go meet Yuna
