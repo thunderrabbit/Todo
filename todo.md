@@ -19,8 +19,8 @@ Receive testimonial from Mohamed
 Nap
 smooch Lin
 Work on AB
-Dinner and movie (Kill Bill on DVD)
-
+Dinner and movie (Jason Bourne online Tsutaya)
+Work on AB get prev/next unit tests started
 ##### Friday 21 February 2020 JST
 Practice speech alone
 Practice speech with Soness
