@@ -26,6 +26,7 @@ BrainPad
 (no Akiko meeting)
 go home
 Look up owl.ly   (Oh yeah, it's https://hootsuite.com/)
+begin reading Brené Brown _Daring Greatly_
 ##### Wednesday 26 February 2020 JST
 wake up at 5
 Read Bold Life Brotherhood on Nambu Line
