@@ -1,9 +1,36 @@
+##### Thursday 27 February 2020 JST
+BLB leaders meeting
+probably skip Cyberknights
+work on Conswi (get win screen fixed)
+TJ Bike tire repair
+Toshiba
+BrainPad
+(no Akiko meeting)
+go home
+work on AB (some)
+##### Wednesday 26 February 2020 JST
+wake up at 5
+Read Bold Life Brotherhood on Nambu Line
+Shukoh
+eat at Mosburger
+work on Conswi at internet cafe DiCE
+Robert G cancelled our check-in because I was walking at the time
+walk to JB different direction
+see a bonsai pine
+JB School
+Discover LUDO requires green die face but there is no green face on the included die
+belated Happy Birthday Wende
+belated Happy Birthday Christine
+##### Tuesday 25 February 2020 JST
+Get new FB group from Adam
+https://www.facebook.com/groups/380734829216248/
+~6 frames of MT3 in 1.5 hours, but not streamed
+MKP Japan circle
 ##### Monday 24 February 2020 JST
-Happy Birthday Wende
-Happy Birthday Christine
 Work on AB
 Go get TJ Bike
 Go to Coffee workshop
+Hang out with Mo and Alex
 Work on AB
 ##### Sunday 23 February 2020 JST
 print planned language for eye gazing
