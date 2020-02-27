@@ -1,6 +1,7 @@
 ##### Thursday 27 February 2020 JST
 BLB leaders meeting
-probably skip Cyberknights
+join Mohamed on Cyberknights
+ Rob you are a seeker.  Courageous.  welcome in circles.  I judge you are all that!
 work on Conswi (get win screen fixed)
 TJ Bike tire repair
 Toshiba
