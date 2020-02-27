@@ -1,17 +1,31 @@
+##### Friday 28 February 2020 JST
+Post 1 thing on new FB group
+Post one thing via hootsuite
+Invite 5 men to Like new FB group
+Terminal team meeting 9am
+work on Godot (some)
+Integration Group Council meeting 10am
+Manami lesson 12noon
+confirm meeting Tariq
+TJ Bike tire repair
+work on AB (some)
+Go to Nihonbashi
+meet Tariq 4pm
+Write to men
+I finally figured out how to phrase this.
+I have hired a business development team and plan to start leading a new series of circles in Tokyo as part of The Bold Life Brotherhood.  Similar to my ShadowWork practice circles, I will be leading some practice circles for the Bold Life Brotherhood as well.  You men are invited to attend these practice circles at no charge (though I appreciate some support with room rental).  I have not yet set a date, but I have created a group on Facebook.  If you are interested in finding out more about these new circles, please visit the FB group.  I plan to continue doing MKP as well as Bold Life Brotherhood.
+belated Happy Birthday Wende
+belated Happy Birthday Christine
 ##### Thursday 27 February 2020 JST
 BLB leaders meeting
 join Mohamed on Cyberknights
  Rob you are a seeker.  Courageous.  welcome in circles.  I judge you are all that!
 work on Conswi (get win screen fixed)
-TJ Bike tire repair
 Toshiba
 BrainPad
 (no Akiko meeting)
 go home
-work on AB (some)
-Write to men
-I finally figured out how to phrase this.
-I have hired a business development team and plan to start leading a new series of circles in Tokyo as part of The Bold Life Brotherhood.  Similar to my ShadowWork practice circles, I will be leading some practice circles for the Bold Life Brotherhood as well.  You men are invited to attend these practice circles at no charge (though I appreciate some support with room rental).  I have not yet set a date, but I have created a group on Facebook.  If you are interested in finding out more about these new circles, please visit the FB group.  I plan to continue doing MKP as well as Bold Life Brotherhood.
+Look up owl.ly   (Oh yeah, it's https://hootsuite.com/)
 ##### Wednesday 26 February 2020 JST
 wake up at 5
 Read Bold Life Brotherhood on Nambu Line
@@ -23,8 +37,6 @@ walk to JB different direction
 see a bonsai pine
 JB School
 Discover LUDO requires green die face but there is no green face on the included die
-belated Happy Birthday Wende
-belated Happy Birthday Christine
 ##### Tuesday 25 February 2020 JST
 Get new FB group from Adam
 https://www.facebook.com/groups/380734829216248/
