@@ -10,8 +10,12 @@ I have hired a business development team and plan to start leading a new series 
 Go to SOGO
 meet Tariq and D
 decide to use code to align images in ConSwi
+smooch Babychan
 Mutsumi lesson
 Yuna lesson
+get syncthing installed on wanb.us
+get syncthing installed on Silver Monkey
+share syncthing IDs between wanb.us, Silver Monkey, and Little Blue Monkey
 ##### Saturday 29 February 2020 JST
 go to Takao with Lin
 meet Jason and Luis by 8am
