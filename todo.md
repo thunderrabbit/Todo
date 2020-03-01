@@ -6,7 +6,9 @@ I have hired a business development team and plan to start leading a new series 
 
 
 ##### Monday 2 March 2020 JST
-See if synthing works
+sbstrm invoice
+Yuna invoice
+See if syncthing works
 Post 1 thing on new FB group
 Post one thing via hootsuite
 Japanese class canceled for COVID-19 "coronavirus"
