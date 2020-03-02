@@ -4,6 +4,9 @@ Write to men
 I finally figured out how to phrase this.
 I have hired a business development team and plan to start leading a new series of circles in Tokyo as part of The Bold Life Brotherhood.  Similar to my ShadowWork practice circles, I will be leading some practice circles for the Bold Life Brotherhood as well.  You men are invited to attend these practice circles at no charge (though I appreciate some support with room rental).  I have not yet set a date, but I have created a group on Facebook.  If you are interested in finding out more about these new circles, please visit the FB group.  I plan to continue doing MKP as well as Bold Life Brotherhood.
 
+Marble Track 3
+Write longer descriptions of services I want to offer
+MKP circle
 
 ##### Monday 2 March 2020 JST
 See if syncthing works
@@ -14,7 +17,55 @@ Post one thing via hootsuite
 Japanese class canceled for COVID-19 "coronavirus"
 Monten canceled so she can grade tests suddenly due due to COVID-19
 Robert Golden meeting
-AirBnB consultation
+one episode of Formula 1 (season 2)
+Two episodes of Southpark (season 21)
+AirBnB consultation with Clio
+Take a nap
+Write email to Erik with list of sites I like and a couple I don't
+HI Erik
+
+Thank you for keeping on top of this.
+
+Maybe my favorite of what I've found recently
+https://www.bayemcneil.com/
+
+I like the design and colors of these
+http://futagogo.moe/
+https://www.sunshine-massage-school.com/
+
+I like this short page, but not the immediate popup
+https://www.personalfinancecoaching.com/
+
+I like the text and images on alternating sides here
+https://www.theperformancecode.co/
+
+I like the raw vulnerability in Michael's posts
+https://michaeljiang.tumblr.com/
+
+I like how the menu stays visible as we scroll
+http://catallen.yoga/
+
+I like the huge picture layout of Maha's https://treeful.net/ and Michael's http://www.michaelsloyer.com/ but not sure what my analogous version would be
+
+As I mentioned before, I like Dean's site because it is low key.  It was hard for me to find a call to action or know how to navigate, but I still like it.
+http://deanramsden.com/    I do not think I have enough content yet to even attempt that site, but it's something to strive toward over time as I develop my offerings.
+
+There seems to be a trend of long scrolling top pages.  I don't honestly want that type, but it seems most of my friends' sites are like that
+https://www.helmwood.com/
+https://www.menyahinga.com/
+https://mauisbestmassage.com/
+https://www.piers-cross.com/
+https://thewealthsource.com/
+http://amandarobins.com/
+https://www.bridgingspaces.nl/en/
+http://www.truensight.com/
+http://www.michaeljohngrist.com/
+http://greenagel.com/
+
+
+Here is an example of what I do *not* want the page to be like, because I think it is annoying and boasting.  There certainly may be some 3rd round work for me to do on why I do not like this   https://www.theboldlifebrotherhood.com/blb2020home33950414
+
+I will look at writing some descriptions of the services.
 ##### Sunday 1 March 2020 JST
 Go to SOGO
 meet Tariq and D
