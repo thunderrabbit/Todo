@@ -6,13 +6,13 @@ I have hired a business development team and plan to start leading a new series 
 
 
 ##### Monday 2 March 2020 JST
+See if syncthing works
 sbstrm invoice
 Yuna invoice
-See if syncthing works
-Post 1 thing on new FB group
+Post 1 thing on new FB group https://www.facebook.com/groups/206355374076153/permalink/210551716989852/
 Post one thing via hootsuite
 Japanese class canceled for COVID-19 "coronavirus"
-Go see Monten about Japanese class via
+Monten canceled so she can grade tests suddenly due due to COVID-19
 Robert Golden meeting
 AirBnB consultation
 ##### Sunday 1 March 2020 JST
