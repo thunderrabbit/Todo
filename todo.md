@@ -3,10 +3,27 @@ Invite 5 men to Like new FB group
 Write to men
 I finally figured out how to phrase this.
 I have hired a business development team and plan to start leading a new series of circles in Tokyo as part of The Bold Life Brotherhood.  Similar to my ShadowWork practice circles, I will be leading some practice circles for the Bold Life Brotherhood as well.  You men are invited to attend these practice circles at no charge (though I appreciate some support with room rental).  I have not yet set a date, but I have created a group on Facebook.  If you are interested in finding out more about these new circles, please visit the FB group.  I plan to continue doing MKP as well as Bold Life Brotherhood.
-
-Marble Track 3
 Write longer descriptions of services I want to offer
+##### Thursday 5 March 2020 JST
+BLB book review
+Create test for AB to ensure correct order when editing units
+SCC while they are closed for Virus Month
+##### Wednesday 4 March 2020 JST
+Fix AB thing (and not have to go to their office yay)
+Shukoh lesson
+internet cafe eat and update this doc
+snooze
+Work on fixing phan/phan errors
+Work on Godot (maybe)
+Read Brené Brown _Daring Greatly_ (maybe)
+JB school
+go home and slizeeep
+##### Tuesday 3 March 2020 JST
+Write tinyletter email https://www.robnugen.com/blog/2020/03/03/marching-right-along/
+Marble Track 3 difficultly got 2nd part of LZZ 2F net glued in place
+Learn that AB prev/next is wonky
 MKP circle
+talk to Will about nofap accountability partnership
 
 ##### Monday 2 March 2020 JST
 See if syncthing works
