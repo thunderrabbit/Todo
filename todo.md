@@ -18,7 +18,9 @@ snooze
 Create test for AB to ensure correct order when editing units
 Read Brené Brown _Daring Greatly_
 JB school
-go home and slizeeep
+Look at ConSwi on the way home
+take a shower
+Fall asleep looking at ConSwi in bed
 ##### Tuesday 3 March 2020 JST
 Write tinyletter email https://www.robnugen.com/blog/2020/03/03/marching-right-along/
 Marble Track 3 difficultly got 2nd part of LZZ 2F net glued in place
