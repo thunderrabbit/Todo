@@ -6,16 +6,17 @@ I have hired a business development team and plan to start leading a new series 
 Write longer descriptions of services I want to offer
 ##### Thursday 5 March 2020 JST
 BLB book review
-Create test for AB to ensure correct order when editing units
-SCC while they are closed for Virus Month
+CyberKnights (maybe)
+No SCC, plus they are closed for Virus Month
+Go to Shibusawa for Japanese Kumon with Monten
+Go home and slizeep probably
 ##### Wednesday 4 March 2020 JST
 Fix AB thing (and not have to go to their office yay)
 Shukoh lesson
 internet cafe eat and update this doc
 snooze
-Work on fixing phan/phan errors
-Work on Godot (maybe)
-Read Brené Brown _Daring Greatly_ (maybe)
+Create test for AB to ensure correct order when editing units
+Read Brené Brown _Daring Greatly_
 JB school
 go home and slizeeep
 ##### Tuesday 3 March 2020 JST
@@ -24,7 +25,6 @@ Marble Track 3 difficultly got 2nd part of LZZ 2F net glued in place
 Learn that AB prev/next is wonky
 MKP circle
 talk to Will about nofap accountability partnership
-
 ##### Monday 2 March 2020 JST
 See if syncthing works
 sbstrm invoice
