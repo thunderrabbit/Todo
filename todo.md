@@ -4,12 +4,33 @@ Write to men
 I finally figured out how to phrase this.
 I have hired a business development team and plan to start leading a new series of circles in Tokyo as part of The Bold Life Brotherhood.  Similar to my ShadowWork practice circles, I will be leading some practice circles for the Bold Life Brotherhood as well.  You men are invited to attend these practice circles at no charge (though I appreciate some support with room rental).  I have not yet set a date, but I have created a group on Facebook.  If you are interested in finding out more about these new circles, please visit the FB group.  I plan to continue doing MKP as well as Bold Life Brotherhood.
 Write longer descriptions of services I want to offer
+##### Friday 6 March 2020 JST
+First session with Freya coaching business development
+Go to indigo dye workshop with Lin
+Go to Saizeria with Lin
+Tell Lin how much untapped inner gold she has (and wonder how much I am projecting)
+Do two sets of 10 KUMON pages while watching Eat, Pray, Love with Lin
+Start to do homework from Freya session
+* Personal Mission Discovery
+    Ever wondered why you are here on earth?  What is the point of all of this?
+    Turns out you, yes you, are a unique manifestation of life in this moment.
+    You are here to do *something*.  Would you like to know what it is?  Like
+    most things in life, the answers are within.  Find the answer within an hour
+    session during which you will remember what gift you have for the world.
+* Goal Setting
+    Knowing what you are here to do is a good start.
+    Now let’s set some goals on how to bring that into practice.
+    Goals can take many forms.  Are your current goals in line with what you truly want?
+    Are you taking steps toward achieving those goals on a regular basis?
+    Do the goals need to be broken down into more manageable bits?
+    Are the steps well defined do you know if you are making progress?
 ##### Thursday 5 March 2020 JST
 BLB book review
-CyberKnights (maybe)
 No SCC, plus they are closed for Virus Month
 Go to Shibusawa for Japanese Kumon with Monten
-Go home and slizeep probably
+Do Japanese worksheets
+Go to The Pink Cow for vegan night
+Invite peeps to walking meditation on Saturday
 ##### Wednesday 4 March 2020 JST
 Fix AB thing (and not have to go to their office yay)
 Shukoh lesson
