@@ -5,6 +5,8 @@ I finally figured out how to phrase this.
 I have hired a business development team and plan to start leading a new series of circles in Tokyo as part of The Bold Life Brotherhood.  Similar to my ShadowWork practice circles, I will be leading some practice circles for the Bold Life Brotherhood as well.  You men are invited to attend these practice circles at no charge (though I appreciate some support with room rental).  I have not yet set a date, but I have created a group on Facebook.  If you are interested in finding out more about these new circles, please visit the FB group.  I plan to continue doing MKP as well as Bold Life Brotherhood.
 Write longer descriptions of services I want to offer
 ##### Saturday 7 March 2020 JST
+Lesson with Yuna
+breakfast with Lin
 Go to TY for meeting
 Go to Shinjuku for Walking Meditation
 Enjoy walking meditation in Shinjuku Gyoen
