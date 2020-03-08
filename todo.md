@@ -4,6 +4,15 @@ Write to men
 I finally figured out how to phrase this.
 I have hired a business development team and plan to start leading a new series of circles in Tokyo as part of The Bold Life Brotherhood.  Similar to my ShadowWork practice circles, I will be leading some practice circles for the Bold Life Brotherhood as well.  You men are invited to attend these practice circles at no charge (though I appreciate some support with room rental).  I have not yet set a date, but I have created a group on Facebook.  If you are interested in finding out more about these new circles, please visit the FB group.  I plan to continue doing MKP as well as Bold Life Brotherhood.
 Write longer descriptions of services I want to offer
+##### Sunday 8 March 2020 JST
+Create new event for First Stuarday in April
+Tell Freya I have not received Asana link
+Kick people out of MKP group and invite Bren
+Ask circle about sign up for meetup.com unlimited
+Thank people for pictures yesterday
+Ask Adam about process of first meeting
+try deploying this on terminal.co
+Write review of walk yesterday
 ##### Saturday 7 March 2020 JST
 Lesson with Yuna
 breakfast with Lin
@@ -13,6 +22,8 @@ Enjoy walking meditation in Shinjuku Gyoen
 Take pictures!
 Enjoy foot bath at foot bath cafe
 Buy pack of Frixion pens from Saikaya
+Eat dinner with Lin
+Try to edit this thing from my Android phone
 ##### Friday 6 March 2020 JST
 First session with Freya coaching business development
 Go to indigo dye workshop with Lin
