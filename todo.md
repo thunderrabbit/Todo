@@ -22,6 +22,10 @@ watch damn comedies on TV
 Study Japanese via KUMON worksheets (up to A 70 b)
 play too much Best Fiends
 eat too much with Lin
+Help Lin get Piwigo working again on her site https://www.hayashitiger.com/gallery/
+Post pics on her site wow what terrible URLs
+ * https://www.hayashitiger.com/gallery/index.php?/category/161
+ * https://www.hayashitiger.com/gallery/index.php?/category/162
 fix size of background imags in Godot by removing code that did anything
 swap light in my room with light in bedroom so I now have more light in my room
 read about coronavirus COVID-19
