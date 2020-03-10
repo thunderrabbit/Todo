@@ -4,15 +4,23 @@ Write to men
 I finally figured out how to phrase this.
 I have hired a business development team and plan to start leading a new series of circles in Tokyo as part of The Bold Life Brotherhood.  Similar to my ShadowWork practice circles, I will be leading some practice circles for the Bold Life Brotherhood as well.  You men are invited to attend these practice circles at no charge (though I appreciate some support with room rental).  I have not yet set a date, but I have created a group on Facebook.  If you are interested in finding out more about these new circles, please visit the FB group.  I plan to continue doing MKP as well as Bold Life Brotherhood.
 Write longer descriptions of services I want to offer
+##### Tuesday 10 March 2020 JST
+Reply to Brett about IPFS deploys working yay!
+Work on AB via phan/phan static PHP analysis
+Work on MT3 (got two angling maglevs working)
+Post to mt3.com https://www.marbletrack3.com/episode/2020/march/backpack-jack-brings-el-lifty-lever-guider/
+Wow 433 hours so far on the project
+Write review of walk yesterday
+men's circle meeting in Shinjuku
 ##### Monday 9 March 2020 JST
 Meditate
 Read script from Adam (it looks great!!)
 eat lunch
 watch interesting video on 5G and CV: https://www.youtube.com/watch?v=CtfqUtW_8AA
 Work on AB
-Work on MT3
 Study Japanese
-Write review of walk yesterday
+Work on AB more (got prev/next units working from sortable reports)
+Email AB about sortable reports
 ##### Sunday 8 March 2020 JST
 Create new event for First Saturday in April
 Tell Freya I have not received Asana link
