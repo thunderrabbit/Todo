@@ -15,7 +15,11 @@ Let me ssh onto AB server
 Create table to track email addresses that we should not email
 Test reading from that table
 Lessons at JB
-go home and sleeeeppp
+talk to C about E
+Create walking meditation event for 21 March
+https://www.meetup.com/Tokyo-Sol-barefoot-more/events/269351355/
+invite a bunch of people
+Sleep at 1am or so
 ##### Tuesday 10 March 2020 JST
 Reply to Brett about IPFS deploys working yay!
 Work on AB via phan/phan static PHP analysis
