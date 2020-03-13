@@ -12,11 +12,11 @@ Work on AB:
     ✓ test new version of frontend on dev
     ✓ merge master to new version
     ✓ push new version to live frontend
-    move code commits from backend to frontend (manually; there are not so many)
+    ✓ move code commits from backend to frontend (manually; there are not so many)
     check new code with phan/phan
-    push new code to dev frontend
-    test code with subscription confirmation
-    trigger bounces and update code until I can isolate email that bounced
+    ✓ push new code to dev frontend
+    ✓ test code with subscription confirmation
+    ✓ trigger bounces and update code until I can isolate email that bounced
     write email to database
     test code with phan/phan
     test code on dev server
