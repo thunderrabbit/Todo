@@ -8,12 +8,17 @@ Write longer descriptions of services I want to offer
 BLB 6:30am
 get confirmation and nonfirmation from various peoples. Hiro will come!
 Work on AB
+CyberKnights
 take bank book to work
 pay Freya for 12 coaching sessions
 withdraw some monies
 lessons at SCC, including the AI quiz!
 go home
-post some things via Hootsuite
+watch Formula 1, s2e5
+Online meeting with CE (postponed)
+Make 2 reservations for foot bath
+Post Mar 22nd event for Shinjuku Gyoen
+https://www.meetup.com/Tokyo-Sol-barefoot-more/events/269371040
 sleeeeppp
 ##### Wednesday 11 March 2020 JST
 wake up 5am
