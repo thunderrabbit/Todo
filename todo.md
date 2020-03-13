@@ -25,6 +25,8 @@ Work on AB:
     push to live frontend
     set subscription to live server
     done
+Meet Tariq and D in Tokyo
+Pay tax stuff
 post some things via Hootsuite
 
 ##### Thursday 12 March 2020 JST
