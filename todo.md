@@ -4,6 +4,28 @@ Write to men
 I finally figured out how to phrase this.
 I have hired a business development team and plan to start leading a new series of circles in Tokyo as part of The Bold Life Brotherhood.  Similar to my ShadowWork practice circles, I will be leading some practice circles for the Bold Life Brotherhood as well.  You men are invited to attend these practice circles at no charge (though I appreciate some support with room rental).  I have not yet set a date, but I have created a group on Facebook.  If you are interested in finding out more about these new circles, please visit the FB group.  I plan to continue doing MKP as well as Bold Life Brotherhood.
 Write longer descriptions of services I want to offer
+##### Friday 13 March 2020 JST
+Confirm no AirBnB signups
+Work on AB:
+    ✓ realize my code has to be on the frontend
+    push new version of frontend
+    test new version of frontend on dev
+    merge master to new version
+    push new version to live frontend
+    move code commits from backend to frontend (manually; there are not so many)
+    check new code with phan/phan
+    push new code to dev frontend
+    test code with subscription confirmation
+    trigger bounces and update code until I can isolate email that bounced
+    write email to database
+    test code with phan/phan
+    test code on dev server
+    push new version
+    merge to master
+    push to live frontend
+    done
+post some things via Hootsuite
+
 ##### Thursday 12 March 2020 JST
 BLB 6:30am
 get confirmation and nonfirmation from various peoples. Hiro will come!
