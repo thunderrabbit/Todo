@@ -8,10 +8,10 @@ Write longer descriptions of services I want to offer
 Confirm no AirBnB signups
 Work on AB:
     ✓ realize my code has to be on the frontend
-    push new version of frontend
-    test new version of frontend on dev
-    merge master to new version
-    push new version to live frontend
+    ✓ push new version of frontend
+    ✓ test new version of frontend on dev
+    ✓ merge master to new version
+    ✓ push new version to live frontend
     move code commits from backend to frontend (manually; there are not so many)
     check new code with phan/phan
     push new code to dev frontend
