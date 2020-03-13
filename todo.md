@@ -13,16 +13,17 @@ Work on AB:
     ✓ merge master to new version
     ✓ push new version to live frontend
     ✓ move code commits from backend to frontend (manually; there are not so many)
-    check new code with phan/phan
+    ✓ check new code with phan/phan
     ✓ push new code to dev frontend
     ✓ test code with subscription confirmation
     ✓ trigger bounces and update code until I can isolate email that bounced
-    write email to database
-    test code with phan/phan
+    ✓ write email to database
+    ✓ test code with phan/phan
     test code on dev server
     push new version
     merge to master
     push to live frontend
+    set subscription to live server
     done
 post some things via Hootsuite
 
