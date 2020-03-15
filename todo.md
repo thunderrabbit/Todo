@@ -4,6 +4,33 @@ Write to men
 I finally figured out how to phrase this.
 I have hired a business development team and plan to start leading a new series of circles in Tokyo as part of The Bold Life Brotherhood.  Similar to my ShadowWork practice circles, I will be leading some practice circles for the Bold Life Brotherhood as well.  You men are invited to attend these practice circles at no charge (though I appreciate some support with room rental).  I have not yet set a date, but I have created a group on Facebook.  If you are interested in finding out more about these new circles, please visit the FB group.  I plan to continue doing MKP as well as Bold Life Brotherhood.
 Write longer descriptions of services I want to offer
+##### Sunday 15 March 2020 JST
+Pack for Your Art Matters
+SOGO
+Your Art Matters
+Invite Anuj, Valeria, Haruna to walking meditation
+Invite Bin to EOS
+##### Saturday 14 March 2020 JST
+Yuna lesson
+bundle up as today is cold!
+Choose wrong (Odawara) destination on train and be late.  (shoulda chosen Fujisawa)
+Meet Celine in Hiratsuka
+EOS seems okay
+Hang out with Soness in Chigasaki
+laugh a lot and make new comedy!
+eat a lot of great food and banana ice cream with macademia nuts
+walk to Chigasaki station together
+Take 19:00 train to Fujisawa
+miss Fujisawa
+buy snack in Yokohama
+go back to Fujisawa
+Take 20:00 Odakyu Line in Fujisawa
+Watch vi Hart 3.14 rant
+start to laugh and cough on train during Virus Month
+stifle cough and stream tears down face
+get off the train and recover
+back on next train
+home by 10pm or so.
 ##### Friday 13 March 2020 JST
 Confirm no AirBnB signups
 Work on AB:
@@ -19,16 +46,15 @@ Work on AB:
     ✓ trigger bounces and update code until I can isolate email that bounced
     ✓ write email to database
     ✓ test code with phan/phan
-    test code on dev server
-    push new version
-    merge to master
-    push to live frontend
-    set subscription to live server
-    done
+    ✓ test code on dev server
+    ✓ push new version
+    ✓ merge to master
+    ✓ push to live frontend
+    ✓ set subscription to live server
+    ✓ done
 Meet Tariq and D in Tokyo
 Pay tax stuff
 post some things via Hootsuite
-
 ##### Thursday 12 March 2020 JST
 BLB 6:30am
 get confirmation and nonfirmation from various peoples. Hiro will come!
